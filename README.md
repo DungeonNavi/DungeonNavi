@@ -1,0 +1,5 @@
+- Hi, I’m Jonell Fernandez
+- I’m interested in Programming/ Web Developing/ Game Developing
+- I’m looking to collaborate on some Investor
+- How to reach me ? just contact me on my email: jonellfernandez101@gmail.com
+- I'm Currently Studying in University of Caloocan City
